@@ -1,6 +1,6 @@
 ![header](./images/header.png)
 
-> QQ 群: [153535519](https://jq.qq.com/?_wv=1027&k=MSNyMu0O)
+> QQ 群: [暂无](https://jq.qq.com/?_wv=1027&k=MSNyMu0O)
 
 ## 🚀 部署
 
